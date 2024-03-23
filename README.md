@@ -1,0 +1,2 @@
+# sekian
+dan terimakasih
